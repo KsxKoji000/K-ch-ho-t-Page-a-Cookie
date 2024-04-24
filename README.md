@@ -1,1 +1,1 @@
-# K-ch-ho-t-Page-a-Cookie
+Không Sử Dụng Vào Mục Đích Buôn Bán !
